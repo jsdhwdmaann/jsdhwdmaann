@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jsdhwdmaann
+- 👋 Hi, I’m @jsdhwdmaann.I am Chinese. 
 - 👀 I’m interested in painting,swimming, cooking and so on. 
 - 🌱 I’m currently learning to code
 - 💞️ I’m looking to collaborate on …
